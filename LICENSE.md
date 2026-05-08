@@ -1,4 +1,4 @@
-
+Enhance CleanMyMac X for macOS with CleanMyMac X for macOS ultimate Helper: search-enhancement & automated-tasks, the #1 helper. Includes search-enhancement and automated-tasks
 
 
 
